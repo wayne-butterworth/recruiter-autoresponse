@@ -12,9 +12,9 @@ Thanks so much for reaching out. I'm always interested in hearing about what new
 
 It does however mean that I don't have the time to hop on a call with everyone who reaches out. A lot of the time, incoming messages represent a very poor fit indeed.
 
-I would love to continue the conversation, but before I do, I'd like to level set around the level of seniority that you're looking for. 
+I would love to continue the conversation, but before I do, I'd like to level set around the level of seniority that you're looking for. Also, at this time I have a preference for remote or mostly remote positions, although would consider other positions if they are otherwise attractive.
 
-Can you send along the company name, a job description and, total compensation details for the role you're reaching out in reference to? 
+Can you please send along the company name, a job description and total compensation details for the role you're reaching out in reference to? 
 
 While I very much appreciate the fact that exceptionally talented and engaged recruiters reach out consistently, sorting serious and high quality opportunities from spam would be a full time job without an autoresponder.
 
@@ -32,9 +32,9 @@ Thanks so much for reaching out. I'm always interested in hearing about what new
 
 It does however mean that I don't have the time to hop on a call with everyone who reaches out. A lot of the time, incoming messages represent a very poor fit indeed. As a result, I often don't check my LinkedIn messages for some time, hence the delay in response.
 
-I would love to continue the conversation, but before I do, I'd like to level set around the level of seniority that you're looking for. 
+I would love to continue the conversation, but before I do, I'd like to level set around the level of seniority that you're looking for. Also, at this time I have a preference for remote or mostly remote positions, although would consider other positions if they are otherwise attractive.
 
-Can you send along the company name, a job description and, total compensation details for the role you're reaching out in reference to? 
+Can you please send along the company name, a job description and total compensation details for the role you're reaching out in reference to? 
 
 While I very much appreciate the fact that exceptionally talented and engaged recruiters reach out consistently, sorting serious and high quality opportunities from spam would be a full time job without an autoresponder.
 
